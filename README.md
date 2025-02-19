@@ -1,1 +1,1 @@
-# daily lain journal
+# daily lain journal.
